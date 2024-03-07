@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on: Nothing
 - 📫 How to reach me: You don't
 - 😄 Pronouns: None
-- ⚡ Fun fact: I don't have one
+- ⚡ Fun fact: You're stalking my profile
 
 <!---
 MazharAT/MazharAT is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
