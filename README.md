@@ -1,4 +1,4 @@
-- 👋 Hi, I’m: God
+- 👋 Hi, I’m: None of your business
 - 👀 I’m interested in: Staying alive
 - 🌱 I’m currently learning: Reevaluating my life decisions
 - 💞️ I’m looking to collaborate on: Nothing
